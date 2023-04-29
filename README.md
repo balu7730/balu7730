@@ -1,5 +1,5 @@
 - 👋 Hi, I’m bala Krishna 
-- 👀 I’m interested in 
+- 👀 I’m interested in software developer 
 - 🌱 I’m currently studying btech 3rd year
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
